@@ -1,1 +1,1 @@
-# Informatika
+# 1-topshiriq
